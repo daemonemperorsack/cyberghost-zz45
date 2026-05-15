@@ -1,4 +1,4 @@
-
+Enhance your CyberGhost experience with CyberGhost exclusive App: VPN-over-TOR & camouflage-mode, the #1 app. Includes VPN-over-TOR and camouflage-mode for a safer and more
 
 
 
